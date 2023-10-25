@@ -1206,5 +1206,3 @@ The System was made and Tested for the output results.
 
 
 
-WE WISH YOU ALL THE BEST FOR YOUR CAREER
-
